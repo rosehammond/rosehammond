@@ -7,4 +7,4 @@
 - 📫 How to reach me: [LinkedIn](www.linkedin.com/in/rosehammond)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I used to be a bookbinder.
--->
+
